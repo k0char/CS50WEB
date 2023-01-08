@@ -1,0 +1,1 @@
+Wiko to moj brat i jest gigachadem. Pomimo tego ze czasami sie bijemy to go bardzo kocham.
